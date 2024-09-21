@@ -1,6 +1,5 @@
-just Imaster, yes, mh
+ yes, mh
 
-you can talk with me
 
 
 
@@ -119,10 +118,4 @@ you can talk with me
 
 
 
-
-
-
-
-
-owo
 
